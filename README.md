@@ -1,7 +1,2 @@
-# laba
-ВАПЫЯВАПВАЫП
-
-### fbfhgfghfghfggff
-
-
-bvvdfdgkhd
+dkjfnvkdhkfjbnjd
+dskjlbjdskb
